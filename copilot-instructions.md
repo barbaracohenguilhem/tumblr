@@ -1,0 +1,1 @@
+/Users/barbaracohen/Desktop/Diario da inconstitucionalidade/shopify/tumblr/AGENTS.md
